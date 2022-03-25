@@ -14,6 +14,7 @@ Make sure puppy is nice and warm.
 
 Don't let puppy escape. Puppy is sneaky and can run fast even though it only has tiny little legs.
 
+Be nice to puppy.
 
 
 : Chapter Three: Feeding your new puppy
