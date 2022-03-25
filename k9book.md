@@ -3,10 +3,10 @@ HOW TO GROW A DOG
 
 : Chapter One: Choosing your puppy
 
-Look around until you find one that you like.
+Look around until you find one you like.
 
 
-: Chapter Two: Bringing it home for the first time
+: Chapter Two: Bringing puppy home for the first time
 
 
 
