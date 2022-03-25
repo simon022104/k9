@@ -16,6 +16,8 @@ Don't let puppy escape. Puppy is sneaky and can run fast even though it only has
 
 Be nice to puppy.
 
+Cats can hurt puppies.
+
 
 : Chapter Three: Feeding your new puppy
 
