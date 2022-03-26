@@ -1,2 +1,2 @@
-# k9
+: k9
 this is a test
